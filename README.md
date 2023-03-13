@@ -1,2 +1,0 @@
-# VTI-Trainee-Program
- 
